@@ -1,0 +1,1 @@
+sugar, soy oil, salt, yeast, corn syrup solids, sodium caseinate (a milk derivative), mono and diglycerides, potassium bromate and enzymes.
